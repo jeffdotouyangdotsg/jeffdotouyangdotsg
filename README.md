@@ -1,1 +1,1 @@
-普通软件工程师
+freedom, self-control
